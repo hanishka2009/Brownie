@@ -1,0 +1,2 @@
+NOTES
+You can also make these brownies without an oven. For that preheat a heavy bottomed pan on medium heat with a small rack or stand inside for about 15 minutes. Then place the baking pan on top of the stand inside the pan, cover and bake on medium-low heat for about 35-40 minutes.

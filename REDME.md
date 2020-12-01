@@ -1,0 +1,1 @@
+A chocolate brownie is a baked chocolate dessert. The 2 main kinds for brownies are cakey and the fudgy.  I've shared the recipe for the perfect fudgy brownies You can add nuts or chocolate chunks to your brownies or serve with whipped cream or vanilla ice cream as per your preference.
